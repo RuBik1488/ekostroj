@@ -1,3 +1,3 @@
 # site ekostroy52.ru
 
-![Imgur](https://imgur.com/a/jeoyKyN)
+[Imgur](https://i.imgur.com/6jPZJfc.jpg)
